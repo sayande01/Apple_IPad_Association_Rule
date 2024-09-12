@@ -1,0 +1,1 @@
+# Apple_IPad_Association_Rule
